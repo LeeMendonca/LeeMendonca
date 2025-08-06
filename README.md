@@ -6,6 +6,4 @@ Unfortunately, I was unable to save the code used at the time, but here you can 
 
 I am currently looking for an internship in technology so that I can put my knowledge into practice in a corporate environment and start my career as a programmer.
 
-Personal email: leticiamendonca2110@gmail.com
-
 Expected graduation date: June 2028 📚
