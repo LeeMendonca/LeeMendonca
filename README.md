@@ -9,5 +9,3 @@ I am currently looking for an internship in technology so that I can put my know
 Personal email: leticiamendonca2110@gmail.com
 
 Expected graduation date: June 2028 📚
-
-Fun fact: I like to play piano in my spare time 🎶
